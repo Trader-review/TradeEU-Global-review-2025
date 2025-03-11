@@ -10,7 +10,7 @@ But with new regulations, technology upgrades, and shifting trader expectations,
 
 
 
-![image]()
+![image](https://github.com/Trader-review/TradeEU-Global-review-2025/blob/696e8d8081975cabc6b3105e6e130bc62cd1518f/TradeEU-Global-logo.png)
 
 Key Updates and Changes in 2025
 --------------------
